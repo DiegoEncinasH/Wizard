@@ -1,0 +1,1 @@
+![](https://github.com/DiegoEncinasH/Wizard.git/FXadv/paso1.png)
